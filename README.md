@@ -1,0 +1,1 @@
+# takou-no-koori-hime-wo-tasuketara-otomodachi-kara-hajimeru-koto-ni-narimashita
