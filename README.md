@@ -1,1 +1,2 @@
-# takou-no-koori-hime-wo-tasuketara-otomodachi-kara-hajimeru-koto-ni-narimashita
+# Takou no Koori Hime wo Tasuketara, Otomodachi kara Hajimeru Koto ni Narimashita
+Nagi Shinonome, surnommée la « Princesse des Glaces », est une belle jeune fille au caractère froid qui ne se laisse pas approcher. Un jour, Souta Minori, qui l'avait vue se faire agresser dans le train, la sauva courageusement. Mais le lendemain, elle réapparut et lui dit : « Je veux que tu restes à mes côtés. » Souta pourra-t-il rester ami avec la Princesse des Glaces, qui ne fond que pour une seule personne au monde : lui-même ?
